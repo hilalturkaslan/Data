@@ -1,1 +1,1 @@
- Data case study done
+ Data for ai app case study 
