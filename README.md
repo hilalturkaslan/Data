@@ -1,1 +1,1 @@
- ai for data app case study 
+ ai for do data app case study 
