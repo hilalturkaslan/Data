@@ -1,1 +1,1 @@
-ai for sample do it is an data app case study 
+data for sample do than is a ai app case study 
