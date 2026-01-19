@@ -1,1 +1,1 @@
-data for make do then is a ai app case study 
+data for make done ai app case study 
